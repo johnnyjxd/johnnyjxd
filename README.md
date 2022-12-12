@@ -8,3 +8,10 @@ oh god its gonna be a pain if 9 yrs watch my vids when my channel does good and 
 like the 9 yrs are going to just spam "CAN YOU PLS MAKE ME A COLLAB SITE PLS PLS PLS PLS PLS 🥺🥺🥺 " and I HATE WHEN THAT HAPPES, like even if im not
 avalible or so then you will see that flooding the comments.
 and that pretty much it for now
+
+
+
+
+
+
+grades are a pain in heck
